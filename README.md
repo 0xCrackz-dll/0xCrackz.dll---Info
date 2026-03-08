@@ -1,3 +1,3 @@
 # 0xCrackz.dll-main
--My main crack sharing network-
+-My main sharing network-
 -
